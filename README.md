@@ -5,3 +5,4 @@
 
 >> Well not a total R.I.P, but it only exists for me for some reason and I can't host sites, so here we are. 
 >>> **This year I wanna write CASUAL NERDING with the activity of commits, cuz why not?** 
+>>>> The name and profile pic are this, because I made it on New Years while drunk and these are all lyrics from a song lmao. 
